@@ -1,2 +1,2 @@
-# copa_das_confedera-es_ing_x_urguai
+# copa_das_confederacoes_ing_x_urguai
 Tabela de campenato
